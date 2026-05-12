@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with perpetual trading bot exclusive Strategy | API-integration & arbitrage-scanning, the #1 perpetual trading bot. Includes API-integration and
 
 
 
